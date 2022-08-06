@@ -6,4 +6,4 @@
 
 **COLLABORATIONS:** cryptocurrency projects that have genuine value.
 
-**TWITTER:** @usefulcoinllc
+**TWITTER:** @usefulcoincode
